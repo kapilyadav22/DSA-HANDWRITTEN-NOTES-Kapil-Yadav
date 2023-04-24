@@ -1,4 +1,4 @@
-# DSA-AND-TECH-SUBJECTS
+# DSA-Handwritten Notes Kapil Yadav Github
 
 #links of all my Handwritten notes:
 My Handwritten Notes link:
