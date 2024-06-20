@@ -45,4 +45,4 @@ https://www.linkedin.com/posts/kapilyadav22_algorithm-short-notes-activity-68702
 https://www.linkedin.com/posts/kapilyadav22_operating-system-short-notes-activity-6869993750635053056-RCzj 
 
 
-Follow me on LinkedIn: https://www.linkedin.com/in/kapilyadav22/
+Connect with me on LinkedIn: https://www.linkedin.com/in/kapilyadav22/
